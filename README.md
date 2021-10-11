@@ -1,4 +1,4 @@
-Basic Fighting Game Guide (**important**)
+Basic Fighting Game Guide Zero to Hero
 New to Fighting Games?
 TECH/GUIDE
 
